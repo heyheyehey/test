@@ -2,4 +2,4 @@
 
 how are you doing
 
-F u
+I'm fine, F u
